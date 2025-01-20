@@ -7,9 +7,9 @@
 
 - 💬 Ask me about **MERN, JavaScript, C++, DSA etc...**
 
-- 📫 How to reach me **tspathan012@gmail.com**
+- 📫 How to reach me **tanveerpathan.work@gmail.com**
 
-- ⚡ Fun fact **I am so funny😅 and cool 😎**
+- ⚡ Fun fact ** I love play Game's 😎 **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
